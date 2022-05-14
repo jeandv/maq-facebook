@@ -29,6 +29,6 @@ Si quieres contratarme puedes escribirme a jeanrdev@gmail.com o a mi [LinkedIn](
 
 # Vista previa 🔎
 
-
+![face](https://user-images.githubusercontent.com/90219458/168406913-a5c912a3-d13f-44bc-a105-74e9baaa5a85.PNG)
 
 <small>Creado por Jean Rondón</small>
